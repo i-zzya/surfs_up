@@ -20,3 +20,4 @@ With 1517 entries of captured temps for December we learned that the average tem
 
 
 ## Summary: 
+Now that we have provided W. Avy with the information necessary to make an informed decision. We suggest that he go ahead and open both a Surf shop and Ice Cream Shop. There may be a few days in December where they may not be as busy, but it shouldnt deter them from opening a shop year round.  
